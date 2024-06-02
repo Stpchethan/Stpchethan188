@@ -29,9 +29,9 @@
 
 
 
-<img align="right" alt="Coding" width="400px" src="![image](https://github.com/Stpchethan/Stpchethan188/assets/150255736/aa75b312-5190-4548-a34b-6e80fc1d3481)
 
-" >
+
+
 
 
 
